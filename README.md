@@ -1,10 +1,6 @@
-- 👋 Hey, Me llamo @Miguel21321
-- 👀 Estoy interesado en la programación html
+- 👋 Hey, me llamo Miguel mi discord es ! TT MIG#8767
+- 👀 Estoy interesado en la programación html y el diseño grafico
 - 🌱 Me gusta aprender cosas nuevas
 - 💞️ Soy amable, responsable y gracioso
-- 📫 Unete a mi discord https://discord.com/invite/SMhu2euSf9
-
-<!---
-Miguel21321/Miguel21321 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- 📫 Unete a mi discord https://discord.io/ttmiguelitis y a https://discord.com/zerp
+- 📷 Hechale un vistazo a mi canal de yt https://www.youtube.com/channel/UCitBBiF_wL7NlbHdrpqM0RQ
